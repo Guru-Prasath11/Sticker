@@ -1,0 +1,2 @@
+# Sticker
+ Details of Sticker
